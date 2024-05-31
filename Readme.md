@@ -1,0 +1,1 @@
+Este Repositório é para mostrar o que estou praticando no momento, vou pesquisar e reescrever cada projeto simples que eu encontrar para poder melhorar meu conhecimento, futuramente vou criar outro repositório para iniciar alguma ideia minha, vi alguns videos que me motivaram, agora basta seguir em frente.
